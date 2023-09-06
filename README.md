@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **my projects, favourite games, my videos**
 
-- 📫 How to reach me **TADEAS000#8112, tadamejzlik@seznam.cz**
+- 📫 How to reach me **tadeasboi**
 
 - ⚡ Fun fact **Earth is not flat, but it's not perfectly round either.**
 
