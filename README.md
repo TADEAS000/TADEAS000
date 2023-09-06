@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **my projects, favourite games, my videos**
 
-- 📫 How to reach me **tadeasboi**
+- 📫 How to reach me **tadeasboi** on discord
 
 - ⚡ Fun fact **Earth is not flat, but it's not perfectly round either.**
 
